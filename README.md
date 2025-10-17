@@ -1,4 +1,4 @@
-<sub><sub>main @dogfashiondisco</sub></sub>
+<sub><sub>main @dogfashiondisco　　[I](https://rentry.co/thehomeowner)　　[II](https://rentry.co/rotpony)　　[III](https://dogfashiondisco.straw.page)</sub></sub>
 
 ![](https://files.catbox.moe/9045vg.gif)
 
