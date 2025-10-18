@@ -1,4 +1,4 @@
-<sub><sub>main @dogfashiondisco　　.　　[rentry](https://rentry.co/thehomeowner)　　[ponytown info](https://rentry.co/rotpony)　　[strawpage](https://dogfashiondisco.straw.page)</sub></sub>
+<sub><sub>main @dogfashiondisco　　.　　[rentry](https://rentry.co/thehomeowner)　　[ponytown info](https://rentry.co/rotpony)　　[strawpage](https://dogfashiondisco.straw.page)　　[ata](https://dogfashiondisco.atabook.org)</sub></sub>
 
 ![](https://files.catbox.moe/9045vg.gif)
 
