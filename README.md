@@ -4,6 +4,6 @@ ${\textsf{\color{#404040}things will never go back to the way they were. life ch
 <p align="center">
   <img width="700" height="350" src="https://files.catbox.moe/5f69tp.gif">
 </p>
-<p align="center">
+<p align="left">
 ${\textsf{\color{#404040}main: @dogfashiondisco. probably dniuf}}$
 </p>
