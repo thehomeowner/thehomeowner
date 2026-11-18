@@ -2,5 +2,5 @@
 <img width="736" height="277" src="https://i.postimg.cc/SKdXvLyz/81af207e54cd92f11d1f9a868537eee6.png">
 </p>
 <p align="center">
-${\textsf{\color{#DEF0E6}there will be nothing when im through with you}}$
+${\textsf{\color{#404040}there will be nothing when im through with you}}$
 </p>
