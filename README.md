@@ -1,9 +1,6 @@
 <p align="center">
-${\textsf{\color{#404040}things will never go back to the way they were. life changed, you're falling out of rhythm}}$
+<img width="558" height="206" src="https://i.postimg.cc/W4nY3y79/68747470733a2f2f66696c65732e636174626f782e6d6f652f3566363974702e676966-(1).gif">
 </p>
 <p align="center">
-  <img width="700" height="350" src="https://files.catbox.moe/5f69tp.gif">
-</p>
-<p align="center">
-${\textsf{\color{#404040}main: @dogfashiondisco　　　probably dniuf}}$
+${\textsf{\color{#404040}there will be nothing when im through with you>}}$
 </p>
