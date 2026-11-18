@@ -1,5 +1,5 @@
 <p align="center">
-<img width="400" height="225" src="https://i.postimg.cc/W4nY3y79/68747470733a2f2f66696c65732e636174626f782e6d6f652f3566363974702e676966-(1).gif">
+<img width="736" height="277" src="https://i.postimg.cc/SKdXvLyz/81af207e54cd92f11d1f9a868537eee6.png">
 </p>
 <p align="center">
 ${\textsf{\color{#DEF0E6}there will be nothing when im through with you}}$
